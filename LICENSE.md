@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://DetectiveAmend78.github.io/ultimate-mining-ty-ej90/ ) |
  |---------------------|----------------------:|
 
 
